@@ -8,7 +8,7 @@
 
 ‎‎<img src="https://cute.crd.co/assets/images/gallery19/f838ffe3.png?v=b2065c0c" width="30" hspace="-70"/>  ⊰ ${\color{#b35c34}See}$ ${\color{#b35c34} this}$ ${\color{#b35c34}is}$ ${\color{#b35c34}why}$ ${\color{#b35c34}you're}$ ${\color{#b35c34}a}$ ${\color{#e0d8d9}lost }$ ${\color{#e0d8d9}cause }$ ${\color{#e0d8d9}bro.}$⊱ <img src="https://cute.crd.co/assets/images/gallery01/5a14c106.gif?v=b2065c0c" width="30" hspace="10" />
 
- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ${\color{#e0d8d9}she }$  ‎   ‎ ‎ ‎ ${\color{#e0d8d9}her }$‎ ‎     ‎ ‎ ‎ ‎   <img src="https://i.postimg.cc/g2SzjFpy/KXICOIV.gif" width="24">‎ ‎ ‎ ‎    ‎ ${\color{#c57738}rejoice}$     ${\color{#e0d8d9}or}$    ${\color{#c57738}cycho}$
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ${\color{#e0d8d9}any }$  ‎   ‎ ‎ ‎ ${\color{#e0d8d9}all }$‎ ‎     ‎ ‎ ‎ ‎   <img src="https://i.postimg.cc/g2SzjFpy/KXICOIV.gif" width="24">‎ ‎ ‎ ‎    ‎ ${\color{#c57738}rejoice}$     ${\color{#e0d8d9}or}$    ${\color{#c57738}cycho}$
  
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ [straw](https://pearmane.straw.page)
 
