@@ -13,7 +13,7 @@
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ [straw]()
 
 
-  ‎ ‎ ‎   <img src="https://adriansblinkiecollection.neocities.org/b8.gif" width="330" height="40" hspace="100"/>
+  ‎ ‎ ‎   <img src="https://adriansblinkiecollection.neocities.org/b8.gif" width="330" height="40" hspace="50"/>
 
 <img src="https://media.discordapp.net/attachments/1502729306558828558/1523009074504007750/ab4cb1aba5a2e59211a4ec0fcbb49ec3.gif?ex=6a4a8c3b&is=6a493abb&hm=373db0e5bad7b71ab0f75d333b1a3af97b216c699685e7cfce3bacb1c4c61307&=&width=1000&height=452" width="450" />
 
