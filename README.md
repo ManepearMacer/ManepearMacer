@@ -9,10 +9,11 @@
 ‎‎<img src="https://i.postimg.cc/g2SzjFpy/KXICOIV.gif" width="30" hspace="-70"/>  ⊰ ${\color{#b35c34}See}$ ${\color{#b35c34} this}$ ${\color{#b35c34}is}$ ${\color{#b35c34}why}$ ${\color{#b35c34}you're}$ ${\color{#b35c34}a}$ ${\color{#e0d8d9}lost }$ ${\color{#e0d8d9}cause }$ ${\color{#e0d8d9}bro.}$⊱ <img src="https://enchantments.carrd.co/assets/images/gallery02/f1261fd9.gif?v=5c8435d5" width="30" hspace="10" />
 
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ${\color{#e0d8d9}she }$  ‎   ‎ ‎ ‎ ${\color{#e0d8d9}her }$‎ ‎     ‎ ‎ ‎ ‎   <img src="https://64.media.tumblr.com/63aae78d5530c0153210c50804f5a077/6754c683fb341aa1-66/s75x75_c1/4e2af028d588c06643a4fabfa197d20ff660f1e4.gif" width="24">‎ ‎ ‎ ‎    ‎ ${\color{#c57738}rejoice}$     ${\color{#e0d8d9}or}$    ${\color{#c57738}cycho}$
- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [straw]()
+ 
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ [straw]()
 
 
-  ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎    <img src="https://adriansblinkiecollection.neocities.org/b8.gif" width="330" height="40" />
+  ‎ ‎ ‎   <img src="https://adriansblinkiecollection.neocities.org/b8.gif" width="330" height="40" hspace="100"/>
 
 <img src="https://media.discordapp.net/attachments/1502729306558828558/1523009074504007750/ab4cb1aba5a2e59211a4ec0fcbb49ec3.gif?ex=6a4a8c3b&is=6a493abb&hm=373db0e5bad7b71ab0f75d333b1a3af97b216c699685e7cfce3bacb1c4c61307&=&width=1000&height=452" width="450" />
 
