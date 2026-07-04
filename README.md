@@ -10,12 +10,12 @@
 
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ${\color{#e0d8d9}she }$  ‎   ‎ ‎ ‎ ${\color{#e0d8d9}her }$‎ ‎     ‎ ‎ ‎ ‎   <img src="https://64.media.tumblr.com/63aae78d5530c0153210c50804f5a077/6754c683fb341aa1-66/s75x75_c1/4e2af028d588c06643a4fabfa197d20ff660f1e4.gif" width="24">‎ ‎ ‎ ‎    ‎ ${\color{#c57738}rejoice}$     ${\color{#e0d8d9}or}$    ${\color{#c57738}cycho}$
  
- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ [straw]()
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ [straw](https://pearmane.straw.page)
 
 
-  ‎ ‎ ‎   <img src="https://adriansblinkiecollection.neocities.org/b8.gif" width="330" height="40" hspace="50"/>
+  ‎ ‎ ‎   <img src="https://adriansblinkiecollection.neocities.org/b8.gif" width="330" height="40" hspace="20"/>
 
-<img src="https://media.discordapp.net/attachments/1502729306558828558/1523009074504007750/ab4cb1aba5a2e59211a4ec0fcbb49ec3.gif?ex=6a4a8c3b&is=6a493abb&hm=373db0e5bad7b71ab0f75d333b1a3af97b216c699685e7cfce3bacb1c4c61307&=&width=1000&height=452" width="450" />
+<img src="https://media.discordapp.net/attachments/1502729306558828558/1523009074504007750/ab4cb1aba5a2e59211a4ec0fcbb49ec3.gif?ex=6a4a8c3b&is=6a493abb&hm=373db0e5bad7b71ab0f75d333b1a3af97b216c699685e7cfce3bacb1c4c61307&=&width=1000&height=452" width="400" />
 
 <img alighn="right" src="https://media.discordapp.net/attachments/1502729306558828558/1523009076303364248/01b56bb6ed4fabb68feee08e1c94d349.webp.jpg?ex=6a4a8c3b&is=6a493abb&hm=e7f356e2f4ab7d079bc5dd802c9cfbc74d5fe5ca43950633fd01dd94caa4a504&=&format=webp&width=1472&height=94" width="900" align="centre" hspace="30">
 
