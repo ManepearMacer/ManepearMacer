@@ -20,7 +20,7 @@
 <img alighn="right" src="https://media.discordapp.net/attachments/1502729306558828558/1523009076303364248/01b56bb6ed4fabb68feee08e1c94d349.webp.jpg?ex=6a4a8c3b&is=6a493abb&hm=e7f356e2f4ab7d079bc5dd802c9cfbc74d5fe5ca43950633fd01dd94caa4a504&=&format=webp&width=1472&height=94" width="900" align="centre" hspace="30">
 
 
-‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ${\color{#e0d8d9}made }$ ${\color{#e0d8d9}by }$ ${\color{#c57738}@antag }$ ${\color{#e0d8d9}on }$ ${\color{#e0d8d9}git }$
+‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ${\color{#e0d8d9}made }$ ${\color{#e0d8d9}by }$ ${\color{#c57738}@antagg }$ ${\color{#e0d8d9}on }$ ${\color{#e0d8d9}git }$
 
 
 
