@@ -6,7 +6,7 @@
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ <img src="https://hits.sh/github.com/manepearmacer.svg?label=pears&extraCount=332&color=b35c34&labelColor=dad6ba&logo=4chan" width="100">
 
-‎‎<img src="https://cute.crd.co/assets/images/gallery19/8266d04b.gif?v=b2065c0c" width="30" hspace="-70"/>  ⊰ ${\color{#b35c34}See}$ ${\color{#b35c34} this}$ ${\color{#b35c34}is}$ ${\color{#b35c34}why}$ ${\color{#b35c34}you're}$ ${\color{#b35c34}a}$ ${\color{#e0d8d9}lost }$ ${\color{#e0d8d9}cause }$ ${\color{#e0d8d9}bro.}$⊱ <img src="https://cute.crd.co/assets/images/gallery19/f87e6e51.gif?v=b2065c0c" width="30" hspace="10" />
+‎‎<img src="https://cute.crd.co/assets/images/gallery19/f838ffe3.png?v=b2065c0c" width="30" hspace="-70"/>  ⊰ ${\color{#b35c34}See}$ ${\color{#b35c34} this}$ ${\color{#b35c34}is}$ ${\color{#b35c34}why}$ ${\color{#b35c34}you're}$ ${\color{#b35c34}a}$ ${\color{#e0d8d9}lost }$ ${\color{#e0d8d9}cause }$ ${\color{#e0d8d9}bro.}$⊱ <img src="https://cute.crd.co/assets/images/gallery01/5a14c106.gif?v=b2065c0c" width="30" hspace="10" />
 
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ${\color{#e0d8d9}she }$  ‎   ‎ ‎ ‎ ${\color{#e0d8d9}her }$‎ ‎     ‎ ‎ ‎ ‎   <img src="https://i.postimg.cc/g2SzjFpy/KXICOIV.gif" width="24">‎ ‎ ‎ ‎    ‎ ${\color{#c57738}rejoice}$     ${\color{#e0d8d9}or}$    ${\color{#c57738}cycho}$
  
@@ -18,6 +18,7 @@
 <img src="https://media.discordapp.net/attachments/1502729306558828558/1523009074504007750/ab4cb1aba5a2e59211a4ec0fcbb49ec3.gif?ex=6a4a8c3b&is=6a493abb&hm=373db0e5bad7b71ab0f75d333b1a3af97b216c699685e7cfce3bacb1c4c61307&=&width=1000&height=452" width="400" />
 
 <img alighn="right" src="https://media.discordapp.net/attachments/1502729306558828558/1523009076303364248/01b56bb6ed4fabb68feee08e1c94d349.webp.jpg?ex=6a4a8c3b&is=6a493abb&hm=e7f356e2f4ab7d079bc5dd802c9cfbc74d5fe5ca43950633fd01dd94caa4a504&=&format=webp&width=1472&height=94" width="900" align="centre" hspace="30">
+
 
 
 
