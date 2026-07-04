@@ -6,9 +6,9 @@
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ <img src="https://hits.sh/github.com/manepearmacer.svg?label=pears&extraCount=332&color=b35c34&labelColor=dad6ba&logo=4chan" width="100">
 
-‎‎<img src="https://i.postimg.cc/g2SzjFpy/KXICOIV.gif" width="30" hspace="-70"/>  ⊰ ${\color{#b35c34}See}$ ${\color{#b35c34} this}$ ${\color{#b35c34}is}$ ${\color{#b35c34}why}$ ${\color{#b35c34}you're}$ ${\color{#b35c34}a}$ ${\color{#e0d8d9}lost }$ ${\color{#e0d8d9}cause }$ ${\color{#e0d8d9}bro.}$⊱ <img src="https://enchantments.carrd.co/assets/images/gallery02/f1261fd9.gif?v=5c8435d5" width="30" hspace="10" />
+‎‎<img src="https://cute.crd.co/assets/images/gallery19/8266d04b.gif?v=b2065c0c" width="30" hspace="-70"/>  ⊰ ${\color{#b35c34}See}$ ${\color{#b35c34} this}$ ${\color{#b35c34}is}$ ${\color{#b35c34}why}$ ${\color{#b35c34}you're}$ ${\color{#b35c34}a}$ ${\color{#e0d8d9}lost }$ ${\color{#e0d8d9}cause }$ ${\color{#e0d8d9}bro.}$⊱ <img src="https://cute.crd.co/assets/images/gallery19/f87e6e51.gif?v=b2065c0c" width="30" hspace="10" />
 
- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ${\color{#e0d8d9}she }$  ‎   ‎ ‎ ‎ ${\color{#e0d8d9}her }$‎ ‎     ‎ ‎ ‎ ‎   <img src="https://64.media.tumblr.com/63aae78d5530c0153210c50804f5a077/6754c683fb341aa1-66/s75x75_c1/4e2af028d588c06643a4fabfa197d20ff660f1e4.gif" width="24">‎ ‎ ‎ ‎    ‎ ${\color{#c57738}rejoice}$     ${\color{#e0d8d9}or}$    ${\color{#c57738}cycho}$
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ${\color{#e0d8d9}she }$  ‎   ‎ ‎ ‎ ${\color{#e0d8d9}her }$‎ ‎     ‎ ‎ ‎ ‎   <img src="https://i.postimg.cc/g2SzjFpy/KXICOIV.gif" width="24">‎ ‎ ‎ ‎    ‎ ${\color{#c57738}rejoice}$     ${\color{#e0d8d9}or}$    ${\color{#c57738}cycho}$
  
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ [straw](https://pearmane.straw.page)
 
