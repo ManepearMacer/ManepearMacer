@@ -17,7 +17,7 @@
 
 <img src="https://media.discordapp.net/attachments/1502729306558828558/1523009074504007750/ab4cb1aba5a2e59211a4ec0fcbb49ec3.gif?ex=6a4a8c3b&is=6a493abb&hm=373db0e5bad7b71ab0f75d333b1a3af97b216c699685e7cfce3bacb1c4c61307&=&width=1000&height=452" width="400" />
 
-<img alighn="right" src="https://media.discordapp.net/attachments/1502729306558828558/1523009076303364248/01b56bb6ed4fabb68feee08e1c94d349.webp.jpg?ex=6a4a8c3b&is=6a493abb&hm=e7f356e2f4ab7d079bc5dd802c9cfbc74d5fe5ca43950633fd01dd94caa4a504&=&format=webp&width=1472&height=94" width="900" align="centre" hspace="30">
+<img alighn="right" src="https://media.discordapp.net/attachments/1279830753156530269/1523041813965967551/01b86a5d00b728eae1cf0328476ab44f-modified__fliter--gold-sunset__channel--all__mode--color__fliter--dark-crimson-sepia__channel--all__mode--normal.png?ex=6a4aaab9&is=6a495939&hm=dfe5a86606f45e49c1a011c3e220a2752fdd741ae7f3ea5ec2b9ae3646f26de6&=&format=webp&quality=lossless&width=1466&height=480" width="900" align="centre" hspace="30">
 
 
 ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ${\color{#e0d8d9}made }$ ${\color{#e0d8d9}by }$ [@antag](https://github.com/antagg) ${\color{#e0d8d9}on }$ ${\color{#e0d8d9}git }$
