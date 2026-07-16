@@ -20,7 +20,6 @@
 <img alighn="right" src="https://media.discordapp.net/attachments/1502729306558828558/1523009093323854044/eb67b79655c5cee6a8e189092fb4a6f2.webp.jpg?ex=6a4a8c3f&is=6a493abf&hm=3796717fa468e741f4170621e584a0d32009c892132a5903980d9e113d1d800f&=&format=webp&width=1472&height=216" width="900" align="centre" hspace="30">
 
 
-‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ${\color{#e0d8d9}made }$ ${\color{#e0d8d9}by }$ [@antag](https://github.com/antagg) ${\color{#e0d8d9}on }$ ${\color{#e0d8d9}git }$
 
 
 
